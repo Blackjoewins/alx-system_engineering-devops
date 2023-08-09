@@ -1,1 +1,1 @@
-shell permission
+HERE ARE THE GURU
